@@ -1,4 +1,4 @@
-# wedding
+# Wedding
 
 ## Ganesh Puja
 
