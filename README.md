@@ -22,7 +22,7 @@ Liam ties the ‘mangalsutra’ (wedding necklace) which includes the gold ‘th
 Immediately following the Mangalya Dharanam, Janani and Liam will exchange their wedding vows and their wedding bands
 
 ## Panigrahanam: Holding Hands
-Now as a married couple, Janani and Liam hold hands 
+Now as a married couple, Janani and Liam hold hands and Liam prays for spiritual companionship and promises to Janani to always be there by her side
 
 ## Saptapadi: The 7 Steps
 Janani and Liam take the 7 sacred steps around the fire together while chanting a special prayer to Lord Vishnu with each step. First for nourishment, second for physical, mental, and spiritual strength to support each other, third to do good and serve others, fourth for harmony and happiness, fifth to preserve wealth, sixth for good fortune in all seasons of life, and the seventh to live spiritually. Afterwards, the couple chants a series of vows summarized as follows: "With the seven steps that we have taken together, you are now my greatest friend. I will never leave this bond. We have been brought together by God and we shall live together with love and goodness in our hearts. Just as words and lyrics, Earth and Heaven, matter and energy, mind and words, and word and its meaning cannot be separated, so shall we be. Let us pray for wealth, children, and happy and fulfilling life." The couple is now spiritually married.
